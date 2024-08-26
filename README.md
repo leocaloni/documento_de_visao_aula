@@ -1,4 +1,4 @@
 Grupo:
 
-Leonardo Caloni Munduruca\n
+Leonardo Caloni Munduruca |
 João Felipe Mendes Jordão
